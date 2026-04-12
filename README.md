@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm student
+I'm student learning programing 
 
 
 ## 🌐 Socials:
